@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **tanvih7@gmail.com**
 
-- 📄 Know about my experiences [8+ years of Teaching experience](8+ years of Teaching experience)
+- 📄 Know about my experiences 8+ years of Teaching experience
 
 - ⚡ Fun fact **Love Cooking,Gardening**
 
